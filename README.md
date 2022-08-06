@@ -36,4 +36,5 @@ Here are some ideas to get you started:
 
 ###### FIND ME
 - 📫 Email: noddy@nnoduka.com
-- 🚜 [Pending update] Website: https://nnoduka.com
+- 📝 Angelist resume: https://angel.co/u/nceruchalu
+- 🚜 Website resume: https://nnoduka.com/me/
